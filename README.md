@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Blazzak
-- 👀 I’m interested in the use of innoviative information technologies
+- 👀 I’m interested in innovative information technologies
 - 🌱 I’m currently studying Engineering Management and working in manufacturing
-- 💞️ I’m looking to collaborate on product/project developement
-- 📫 How to reach me: ...
-- ⚡ Fun fact: 
+- 💞️ I’m looking to collaborate on product/project development
+- 📫 How to reach me: www.linkedin.com/in/wiktorblaszak
+- ⚡ Fun fact: I aim for 7/10 — ambitious enough to matter, humble enough to keep improving.
