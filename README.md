@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Blazzak
-- 👀 I’m interested in innovative information technologies
+- 👀 I’m interested in innovative information technologies and organisational development
 - 🌱 I’m currently studying Engineering Management and working in manufacturing
 - 💞️ I’m looking to collaborate on product/project development
 - 📫 How to reach me: www.linkedin.com/in/wiktorblaszak
